@@ -1,8 +1,7 @@
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Veronika Kosarova
-=========================================================================================================================================
 ![banner456](https://github.com/Verun666/Verun666/assets/163008291/e5ccb927-736b-4306-ba36-c8f538f124ac)
 
-
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Veronika Kosarova
+=========================================================================================================================================
 
 * 🌍  I'm based in UK, Cornwall
 * ✉️  You can contact me at [kosarova.veronica@gmail.com](mailto:kosarova.veronica@gmail.com)
