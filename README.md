@@ -1,6 +1,6 @@
-![banner456](https://github.com/Verun666/Verun666/assets/163008291/e5ccb927-736b-4306-ba36-c8f538f124ac)
+![heyhou](https://github.com/Verun666/Verun666/assets/163008291/c4f659d2-ad28-4ea8-9dff-de51e325f51f)
 
-Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)My name is Veronika Kosarova
+Hi ![](https://user-images.githubusercontent.com/18350557/176309783-0785949b-9127-417c-8b55-ab5a4333674e.gif)I'm Veronika
 =========================================================================================================================================
 
 * 🌍  I'm based in UK, Cornwall
